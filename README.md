@@ -7,5 +7,5 @@
 - 💬 Ask me about EVRYTHING
 - 📫 How to reach me: Discord: Luca5822_
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: 16yo Boy with 0 immagination and a great desire to learn ...
+- ⚡ Fun fact: 17yo Boy with 0 immagination and a great desire to learn ...
 
